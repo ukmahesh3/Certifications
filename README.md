@@ -1,2 +1,2 @@
 # Certifications
-My Compeleted Certifications 
+My Achieved Certifications
